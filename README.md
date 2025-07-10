@@ -1,0 +1,1 @@
+# Kniha-j-zd-simul-tor
